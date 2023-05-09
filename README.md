@@ -1,1 +1,0 @@
-# tanaad-privacy-policy
